@@ -1,1 +1,0 @@
-# half-page-banner-nineteen
